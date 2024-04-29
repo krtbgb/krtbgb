@@ -1,1 +1,1 @@
-Let's build the future.
+Let's build the future, together.
